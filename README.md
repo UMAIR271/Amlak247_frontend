@@ -1,1 +1,0 @@
-# Amlak247_frontend
